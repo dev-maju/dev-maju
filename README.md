@@ -7,13 +7,13 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/dev-maju?tab=repositories](https://github.com/dev-maju?tab=repositories)
 
-- 📝 I regularly write articles on [I dont write](I dont write)
+- 📝 I regularly write articles on [I dont write]
 
 - 💬 Ask me about **LIFE**
 
 - 📫 How to reach me **Not right now**
 
-- 📄 Know about my experiences [IN PROGRESS...](IN PROGRESS...)
+- 📄 Know about my experiences [IN PROGRESS...]
 
 - ⚡ Fun fact **IDK..!!!**
 
